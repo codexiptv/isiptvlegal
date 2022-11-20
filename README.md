@@ -70,6 +70,6 @@ Although, being unable to stream certain shows on TV or films in your area can b
 
 However, the repercussions of consuming illegal IPTV isn’t worth the risk for the majority of viewers. There are plenty of legal, legitimate IPTV providers that are willing to provide legal and licensed content for your enjoyment.
 </b>
-<b>source :
+<b>source :</b>
 </b>
 <a href="https://codexiptv.com/is-iptv-legal-heres-what-you-need-to-know-about-it">CodexIPTV</a>
